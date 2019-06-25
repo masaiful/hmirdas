@@ -1,0 +1,7 @@
+baseURL = "/"
+languageCode = "en-us"
+title = "Hilma's notes"
+theme = "hpaper"
+
+[permalinks]
+posts = "/:slug/"
