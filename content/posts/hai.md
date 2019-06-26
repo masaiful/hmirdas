@@ -1,10 +1,12 @@
 ---
-title: "Hai!"
-date: 2019-03-29T22:38:01+02:00
-
+title: Hai!
+date: 2019-03-29T20:38:01.000Z
+description: >-
+  Sudah lama tak posting sesuatu di blog ini. Selalu merasa sibuk kuliah dengan
+  segala macam hal yang membuat energi tersedot. Apalagi semester kedua ini.
+  Karena ada satu mata kuliah yang agak bikin sewot, yaitu "studio".
+image: /images/uploads/ren2.png
 ---
-Sudah lama tak posting sesuatu di blog ini. Selalu merasa sibuk kuliah dengan segala macam hal yang membuat energi tersedot. Apalagi semester kedua ini. Karena ada satu mata kuliah yang agak bikin sewot, yaitu "studio".
-
 Studio ini mungkin akan saya ceritakan di postingan yang berbeda. Dan itu akan berisi keluh kesah di dalamnya. Tapi ini postingan untuk sekedar mengobati rasa kangen ngeblog. Saya tetap ingin dipanggil blogger sebenarnya, walaupun versi abal-abal.
 
 Walaupun ~~sok~~ sibuk, harusnya bisa lah sempetin menulis sesuatu, misalnya di Jumat sore ini, ketika beban kuliah bisa diabaikan sebentar untuk ditunda sampai nanti tengah malam. Sambil makan sore dan nyuapin bocah yang lagi main hp XD
