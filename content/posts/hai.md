@@ -15,7 +15,7 @@ Di Bandung selain kuliah ya setiap sore jemput anak, terus pulang. Kalau sempat 
 
 Buat yang tau saya di Instagram pasti tau kalau saya suka jajan kopi di luar. Itu kadang memang buat pembenaran atas alasan "biar semangat bikin tugas". Padahal juga kadang cuma sambil bengong. Tapi saya suka sekali duduk bengong di cafe, toh di Bandung harga kopinya kebanyakan lebih murah dari harga kopi di Jakarta. Mumpung kan?
 
-![](https://icit.web.id/content/images/2019/03/2019-03-29-18.08.48-2.jpg)
+![](/img/uploads/coffee.png)
 
 Omong-omong kuliah, pikiran saya lagi penuh banget sekarang. Akhir semester tidak genap 2 bulan lagi. Laporan studio harus diselesaikan, padahal draft rencananya belum fix. Pembimbing paling lambat minggu depan harus dipilih, sedangkan proposal dipresentasikan akhir semester, judul belum ada dan literatur-literatur belum dibaca. Ada tugas Geospasial yang harus dibuat dengan intensif dan butuh banyak data. Kelembagaan tersisa sebuah laporan review dan sebuah makalah yang juga akan dipresentasi. Sementara ini sepertinya satu semester ini tersedot untuk studio ini.  
 
