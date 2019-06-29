@@ -1,6 +1,6 @@
 ---
 title: Kok Ada yang Beda Ya?
-date: 2019-06-27T03:06:10.222Z
+date: 2019-06-29T03:06:10.222Z
 ---
 Ini udah entah ganti platform keberapa sejak pindah dari blog alien kesayangan <http://aliendibumi.blogspot.com/> ini. Identitas alien yang selalu saya bawa kemana-mana itu suda lama saya tinggalkan dan memakai identitas asli sejak Agen Jay menghapus memori saya dengan de-neuralyzer-nya. 
 
