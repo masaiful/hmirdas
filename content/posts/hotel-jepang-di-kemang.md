@@ -2,7 +2,7 @@
 title: Hotel Jepang di Kemang
 date: 2019-07-05T12:29:25.426Z
 ---
-Karena kemarin butuh ke Jakarta, saya lagi pengen mencari penginapan sekalian mau staycation sama anak lanang berdua. Karena acara yang saya mau datangi ada di Kemang, sekalian aja nyari hotelnya di Kemang biar ke tempat acara tinggal jalan kaki. 
+Karena kemarin butuh ke Jakarta, saya lagi pengen mencari penginapan sekalian mau staycation sama anak lanang berdua. Karena acara yang saya mau datangi ada di Kemang, sekalian aja nyari hotelnya di sana biar ke tempat acara tinggal jalan kaki. 
 
 Tadinya mau nyari penginapan seperti di OYO atau Red Doorz atau Airy, tapi sesudah dipikir-pikir kalau tujuannya sekalian staycation sepertinya niat saya tidak akan terlalu dipuaskan oleh jenis penginapan begini, yah walaupun beruntung memang bisa dapat hotel yang bagus.  Tapi kan gitu...kalau beruntung. 
 
