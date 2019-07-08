@@ -6,7 +6,7 @@ Ketika PT KAI mengumumkan bahwa kereta api Pangadaran dari Bandung sudah bisa di
 
 ![](/img/uploads/photo_2019-07-08-17.43.36.jpeg)
 
-Sebenarnya waktu pertama melihat, saya kurang riset dan menganggap Kereta Api Pangandaran berarti ke Pangandaran. Minat ke Pangadaran karena itu adalah daerah yang sama sekali belum pernah saya datangi dan karena itu daerah wisata, berarti banyak yang bisa saya temui di sana. Ternyata rutenya cuma sampai Stasiun Banjar. Oke ya sudahlah, gapapa juga namanya juga impulsif. Toh saya juga belum pernah ke Banjar.
+Sebenarnya waktu pertama melihat, saya kurang riset dan menganggap Kereta Api Pangandaran berarti ke Pangandaran. Saya minat ke Pangadaran karena itu adalah daerah yang sama sekali belum pernah saya datangi dan karena itu daerah wisata, berarti banyak yang bisa saya temui di sana. Ternyata rutenya cuma sampai Stasiun Banjar. Oke ya sudahlah, gapapa juga namanya juga impulsif. Toh saya juga belum pernah ke Banjar.
 
 ![](/img/uploads/photo_2019-07-08-14.51.20.jpeg)
 
