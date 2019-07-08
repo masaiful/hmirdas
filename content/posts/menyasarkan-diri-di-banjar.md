@@ -26,7 +26,7 @@ Sesampai di Stasiun Banjar masih siang. Saya memutuskan berjalan ke alun-alun ya
 
 Ternyata Kota Banjar itu relatif sepi, padahal di Hari Minggu. Mungkin memang bukan kota wisata, jadinya hari minggu ya sama saja. Alun-alun pun terlihat sepi. Beberapa permainan untuk anak-anak bahkan ditutup terpal. Jangan dibandingkan dengan alun-alun Bandung ya, jauh. 
 
-Saya akhirnya memutuskan ke mesjid alun-alun saja, Mesjid Raya Kota Banjar, karena memang belum shalat zuhur. Sekalian pengen ngaso sebentar abis jalan dan bisa meluruskan punggung beberapa menit. Toh sebenarnya belum tau lagi mau ngapain. Yang pasti tujuan selanjutnya haruslah kuliner. 
+Saya akhirnya memutuskan ke mesjid alun-alun saja, Mesjid Agung Banjar, karena memang belum shalat zuhur. Sekalian pengen ngaso sebentar abis jalan dan bisa meluruskan punggung beberapa menit. Toh sebenarnya belum tau lagi mau ngapain. Yang pasti tujuan selanjutnya haruslah kuliner. 
 
 ![](/img/uploads/photo_2019-07-08-14.51.29.jpeg)
 
