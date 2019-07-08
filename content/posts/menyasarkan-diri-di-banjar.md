@@ -26,15 +26,15 @@ Sesampai di Stasiun Banjar masih siang. Saya memutuskan berjalan ke alun-alun ya
 
 Ternyata Kota Banjar itu relatif sepi, padahal di Hari Minggu. Mungkin memang bukan kota wisata, jadinya hari minggu ya sama saja. Alun-alun pun terlihat sepi. Beberapa permainan untuk anak-anak bahkan ditutup terpal. Jangan dibandingkan dengan alun-alun Bandung ya, jauh. 
 
-Saya akhirnya memutuskan ke mesjid alun-alun saja, Mesjid Raya Kota Banjar, karena memang belum shalat zuhur. Sekalian pengen ngaso sebentar abis jalan dan bisa meluruskan punggung beberapa menit. Toh sebenarnya belum tau lagi mau ngapain. Yang pasti tujuan selanjutnya haruslah kuliner. 
+Saya akhirnya memutuskan ke mesjid alun-alun saja, Mesjid Agung Banjar, karena memang belum shalat zuhur. Sekalian pengen ngaso sebentar abis jalan dan bisa meluruskan punggung beberapa menit. Toh sebenarnya belum tau lagi mau ngapain. Yang pasti tujuan selanjutnya haruslah kuliner. 
 
 ![](/img/uploads/photo_2019-07-08-14.51.29.jpeg)
 
-Bermodalkan google map andalan yang selalu nyala, saya akhirnya mencari restoran dan cafe yang menarik. Naaaah satu lagi yang jadi catatan di Banjar, ternyata banyak tempat makan tutup di hari minggu dan cafe walaupun ada yang buka, bukanya di sore hari. Apa apaaaan XD Akhirnya dengan alternatif yang menyempit, saya mencari tempat makan yang reviewnya lumayan. Ada makanan prasmanan dan seafood yang ditawarkan. Saya tidak memilih seafood karena porsinya kebanyakan dan diperuntukkan buat rame-rame, apalagi si bocah memang tidak terlalu suka kerang-kerangan itu. Akhirnya makan prasmanan saja. Lumayan enak dan mengenyangkan. 
+Bermodalkan google map andalan yang selalu nyala, saya mencari restoran dan cafe yang menarik. Naaaah satu lagi yang jadi catatan di Banjar, ternyata banyak tempat makan tutup di hari minggu dan cafe walaupun ada yang buka, bukanya di sore hari. Apa apaaaan XD Akhirnya dengan alternatif yang menyempit, saya mencari tempat makan yang reviewnya lumayan. Ada makanan prasmanan dan seafood yang ditawarkan. Saya tidak memilih seafood karena porsinya kebanyakan dan diperuntukkan buat rame-rame, apalagi si bocah memang tidak terlalu suka kerang-kerangan itu. Akhirnya makan prasmanan saja. Lumayan enak dan mengenyangkan. 
 
 ![](/img/uploads/photo_2019-07-08-17.39.21.jpeg)
 
-Sesudah makan, udah saatnya pulang. Akhirnya saya balik ke stasiun untuk pulang ke Bandung. Anak bocah pas ditanya "kita udah mau balik lagi, gapapa kan?", jawabannya oke aja. Emang lah nih bocah debes banget. 
+Sesudah makan, saatnya pulang. Anak bocah pas ditanya "kita udah mau balik lagi, gapapa kan?" jawabannya oke-oke aja. Emang lah nih bocah debes banget. Kira-kira jam 9 malam, saya udah sampai di rumah lagi. Yaay!
 
 Cukup sekian petualangan hari itu. Cukup menarik dan membuat tidur malam jadi nyenyak karna kebanyakan di jalan. Jadi, Pangandaran di mana? 
 
