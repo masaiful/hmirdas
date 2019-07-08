@@ -30,7 +30,7 @@ Saya akhirnya memutuskan ke mesjid alun-alun saja, Mesjid Agung Banjar, karena m
 
 ![](/img/uploads/photo_2019-07-08-14.51.29.jpeg)
 
-Bermodalkan google map andalan yang selalu nyala, saya akhirnya mencari restoran dan cafe yang menarik. Naaaah satu lagi yang jadi catatan di Banjar, ternyata banyak tempat makan tutup di hari minggu dan cafe walaupun ada yang buka, bukanya di sore hari. Apa apaaaan XD Akhirnya dengan alternatif yang menyempit, saya mencari tempat makan yang reviewnya lumayan. Ada makanan prasmanan dan seafood yang ditawarkan. Saya tidak memilih seafood karena porsinya kebanyakan dan diperuntukkan buat rame-rame, apalagi si bocah memang tidak terlalu suka kerang-kerangan itu. Akhirnya makan prasmanan saja. Lumayan enak dan mengenyangkan. 
+Bermodalkan google map andalan yang selalu nyala, saya mencari restoran dan cafe yang menarik. Naaaah satu lagi yang jadi catatan di Banjar, ternyata banyak tempat makan tutup di hari minggu dan cafe walaupun ada yang buka, bukanya di sore hari. Apa apaaaan XD Akhirnya dengan alternatif yang menyempit, saya mencari tempat makan yang reviewnya lumayan. Ada makanan prasmanan dan seafood yang ditawarkan. Saya tidak memilih seafood karena porsinya kebanyakan dan diperuntukkan buat rame-rame, apalagi si bocah memang tidak terlalu suka kerang-kerangan itu. Akhirnya makan prasmanan saja. Lumayan enak dan mengenyangkan. 
 
 ![](/img/uploads/photo_2019-07-08-17.39.21.jpeg)
 
