@@ -34,7 +34,7 @@ Bermodalkan google map andalan yang selalu nyala, saya mencari restoran dan cafe
 
 ![](/img/uploads/photo_2019-07-08-17.39.21.jpeg)
 
-Sesudah makan, udah saatnya pulang. Akhirnya saya balik ke stasiun untuk pulang ke Bandung. Anak bocah pas ditanya "kita udah mau balik lagi, gapapa kan?", jawabannya oke aja. Emang lah nih bocah debes banget. 
+Sesudah makan, saatnya pulang. Anak bocah pas ditanya "kita udah mau balik lagi, gapapa kan?" jawabannya oke-oke aja. Emang lah nih bocah debes banget. Kira-kira jam 9 malam, saya udah sampai di rumah lagi. Yaay!
 
 Cukup sekian petualangan hari itu. Cukup menarik dan membuat tidur malam jadi nyenyak karna kebanyakan di jalan. Jadi, Pangandaran di mana? 
 
