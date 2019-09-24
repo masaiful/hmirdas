@@ -1,5 +1,5 @@
 ---
-title: September 2019
+title: Hai September!
 date: 2019-09-22T20:04:00.000Z
 ---
 September adalah bulannya saya, begitulah kira-kira. Saya lahir di bulan ini, jadi bondingnya kuat banget. Biasalah romantisme bulan lahir, semua mungkin merasakannya. 
