@@ -1,6 +1,6 @@
 ---
 title: 'September '
-date: 2019-09-18T08:04:42.630Z
+date: 2019-09-24T08:04:42.630Z
 ---
 September adalah bulannya saya, begitulah kira-kira. Saya lahir di bulan ini, jadi bondingnya kuat banget. Biasalah romantisme bulan lahir, semua mungkin merasakannya. 
 
