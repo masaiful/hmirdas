@@ -1,6 +1,6 @@
 ---
 title: Jangan Bawa Anak Nonton Joker
-date: 2019-10-05T14:09:59.407Z
+date: 2019-10-05T23:09:00.000Z
 image: /img/uploads/download.jpeg
 ---
 Setelah Joker tayang di bioskop, orang tak hanya ramai membicarakan tentang ceritanya yang sangat _dark_ itu, atau tentang betapa juaranya akting Joaquin Phoenix, tapi juga tentang _parental warning_ yang selalu disuarakan oleh orang-orang yang memang _concern_ tentang ini. 
