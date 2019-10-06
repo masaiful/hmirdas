@@ -7,9 +7,9 @@ Setelah Joker tayang di bioskop, orang tak hanya ramai membicarakan tentang ceri
 
 Kalau soal Joker, saya salah satu orang yang mengecam jika ada orang tua yang membawa anak-anak turut serta. Bahkan bukan cuma anak-anak, jika ada remaja yang menonton, sebaiknya didampingi oleh orang tua. Didampingi dalam arti dibicarakan, dikasih _insight_ dan tidak dilepas begitu saja. Yah mungkin ini akan terdengar sotoy karena saya tidak punya anak remaja, tapi pastinya saya akan penasaran dengan perspektif apa yang ditangkap anak dari film ini jika anak saya sudah besar nanti. 
 
-![](/img/uploads/download.jpeg)
+![](/img/uploads/gfqn2o2c3ob0ggnt0wde.png)
 
-Film ini ada adegan kekerasan yang untuk standar orang dewasa aja masih terasa _disturbing_ banget, penuh dengan pikiran-pikiran kelam yang harusnya diserap dengan pikiran dewasa, banyak adegan-adegan "mengganggu" secara mental dan gambar-gambar dewasa. Kalau saya yang dalam posisi membawa anak, tentu akan dilema dengan kondisi yang terjadi sepanjang menonton. Beda lagi ceritanya kalau "tidak tahu" dengan apa yang akan disajikan di film, yaaaa itu emang kamunya ajah yang gak perhatian. Semua bioskop kan udah menyajikan rate buat film yang ditayangkan. Dan untuk Joker sudah jelas tertulis D17+, situnya aja yang meleng kali.
+Film ini ada adegan kekerasan yang untuk standar orang dewasa aja masih terasa _disturbing_ banget, penuh dengan pikiran-pikiran kelam yang harusnya diserap dengan pikiran dewasa, banyak adegan-adegan depresif yang "mengganggu" dan gambar-gambar dewasa. Kalau saya yang dalam posisi membawa anak, tentu akan dilema dengan kondisi yang terjadi sepanjang menonton. Beda lagi ceritanya kalau "tidak tahu" dengan apa yang akan disajikan di film, yaaaa itu emang kamunya ajah yang gak perhatian. Semua bioskop kan udah menyajikan rate buat film yang ditayangkan. Dan untuk Joker sudah jelas tertulis D17+, situnya aja yang meleng kali.
 
 Saya tau bahwa sebagian orang masih membela diri dengan alasan "tidak ada yang menjaga anak di rumah" atau "daripada anak saya ditinggal sendirian", well itu bukan pilihan. Ada satu opsi yang bisa dipilih yaitu tidak menonton sama sekali. Itu konsekuensi menjadi orang tua, saya rasa semua orang sudah tau. 
 
@@ -22,7 +22,7 @@ Ada beberapa pilihan yang bisa diambil jika tetap ingin menonton di layar lebar.
 
 Satu yang paling penting dari semua ini adalah : jangan malu nonton sendiri. Karena semua saran di atas kebanyakan yang saya lakukan dengan nonton sendirian. Saya susah untuk menyamakan jadwal dengan orang lain karena terbatasnya waktu-waktu yang tersedia. Untungnya sudah terbiasa nonton sendiri, karena menurut saya menonton film itu lebih penting daripada malu tapi jadinya gak nonton. Yaaah begitulah. Ini pilihan-pilihan untuk yang ingin tetap menonton, karena selalu ada pilihan pamungkas lainnya yaitu : Tidak Menonton XD
 
-![](/img/uploads/images-1-.jpeg)
+![](/img/uploads/hf-joaquin3.jpg)
 
 Semoga tips ini berguna, ya kalau gak berguna paling gak saya jadinya menulis ini.
 
