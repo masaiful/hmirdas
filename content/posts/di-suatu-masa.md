@@ -18,7 +18,7 @@ Waktu itu juga sempat membeli boneka beruang yang lumayan besar, ceritanya mengh
 
 ![](/img/uploads/ae4bdaddd2a0880d8f20182c2788a3d4.jpg)
 
-Setelah dua hari di Bandung akhirnya saya pulang ke Jakarta untuk melanjutkan hidup dan melajutkan patah hatinya... 
+Setelah dua hari di Bandung akhirnya saya pulang ke Jakarta untuk melanjutkan hidup dan melajutkan patah hati.
 
 Ketika saya lihat warung itu sekarang, saya selalu senyum-senyum sendiri mengingat waktu itu. 
 
