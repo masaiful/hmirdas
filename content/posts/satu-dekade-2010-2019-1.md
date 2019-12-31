@@ -2,8 +2,6 @@
 title: Satu Dekade 2010 - 2019
 date: 2019-12-31T06:47:57.105Z
 ---
-
-
 Ngomong-ngomong tentang menulis satu dekade, saya agak kewalahan mengingat tahun-tahun di awal dekade. Pelupa. Facebook yang dulu saya sempat punya, yang bisa dijadikan buat alat pengingat, sekarang tentunya tidak bisa diakses lagi karena udah saya hapus akunnya.
 
 Tapi marilah diingat-ingat.
