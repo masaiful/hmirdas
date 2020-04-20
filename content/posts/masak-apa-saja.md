@@ -6,7 +6,9 @@ Awal-awal Virus Corona mulai mewabah (di Indonesia) dan sudah ada tuntutan untuk
 
 Ketika wabah belum ada, kebutuhan makan saya penuhi dengan jajan di luar. Pakai gofood/gosend, jajan di warung sekitar kontrakan atau beli aja sekitar kampus, toh murah-murah dan praktis. Ketika sudah wabah begini, saya harus masak sendiri. Walaupun banyak warung makan yang menjamin kebersihan dan penyajian masakannya, tetap saja saya merasa lebih nyaman kalau makan masakan sendiri. 
 
-karena cuma berdua dengan anak lanang, memasak gak bisa banyak. Pasti kebuang kalau gitu. Selanjutnya gak boleh pedas. Kalaupun ada cabe, biasanya saya cemplungin bulet-bulet, jadi ya dia paling dapat sensasi pedes yang dikit aja. 
+Karena cuma berdua dengan anak lanang, memasak gak bisa banyak. Pasti kebuang kalau begitu. Selanjutnya gak boleh pedas. Kalaupun ada cabe, biasanya saya cemplungin bulet-bulet, jadi ya dia paling dapat sensasi pedes yang dikit aja. 
+
+Ini mau sharing aja masakan yang saya bikin, tentu yang layak dikasih liat ke orang ya....
 
 ![](/img/uploads/photo_2020-04-19-23.59.13.jpeg)
 
