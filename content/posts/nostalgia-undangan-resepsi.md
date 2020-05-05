@@ -7,9 +7,7 @@ Karena lagi bersih-bersih notes, saya jadi ngeliat undangan resepsi pernikahan s
 
 Btw, dulu sebenarnya di blog ini ada sub-blog tentang pernikahan. Isinya persiapan pernikahan, serba serbi resepsi, marriage, dll. Ditulis oleh saya dan suami. Tapi sesudah beberapa kali oprek-oprek blog, udah aja bubar tuh tab-nya seiring dengan malasnya update isi blog. Tapi tulisan itu masih ada tersebar di blog ini... biasanya dikasih nick name di akhir postingannya. 
 
-Oh Iya tentang undangan tadi ada di sini >>>
-
-http://itwoo.mystrikingly.com/ 
+Undangannya ada di link ini >>>> **http://itwoo.mystrikingly.com/** 
 
 ![](/img/uploads/photo_2020-05-05-07.01.49.jpeg)
 
