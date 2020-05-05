@@ -1,5 +1,5 @@
 ---
-title: "Nostalgia : Undangan Resepsi"
+title: Nostalgia Undangan Resepsi
 date: 2020-05-04T23:54:19.485Z
 image: /img/uploads/photo_2020-05-05-07.01.49.jpeg
 ---
