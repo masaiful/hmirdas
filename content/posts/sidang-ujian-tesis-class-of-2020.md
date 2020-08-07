@@ -22,7 +22,7 @@ Yang rada kesel tuh kok lupa *screenshot* layar waktu ujian bersama semua dosen.
 
 ![](/img/uploads/screen-shot-2020-05-21-at-13.10.42.png)
 
-Yang berbeda dengan sidang offline selain gak bisa menatap dosen secara langsung adalah tidak ada teman yang menunggu dengan balon-balon berbentuk huruf di luar ruangan, tidak ada karangan bunga dan paket-paket berisi snack itu. hahaha ngarep. Di kemudian hari saya juga akhirnya tau bahwa ternyata beberapa teman udah menyiapkan selempang yang bertuliskan nama dan gelar, khas sidang ujian. Bahkan mereka ternyata sudah meyiapkan di bulan maret untuk sidang yang tidak jadi itu. Maacih gaes, kuterhayuuu. 
+Yang berbeda dengan sidang offline selain gak bisa menatap dosen secara langsung adalah tidak ada teman yang menunggu dengan balon-balon berbentuk huruf di luar ruangan, tidak ada karangan bunga dan paket-paket berisi snack itu, hahaha ngarep. Di kemudian hari saya juga akhirnya tau bahwa ternyata beberapa teman udah menyiapkan selempang yang bertuliskan nama dan gelar, khas sidang ujian. Bahkan mereka ternyata sudah meyiapkan di bulan maret untuk sidang yang tidak jadi itu. Maacih gaes, kuterhayuuu. 
 
 Sesudahnya foto-foto aja di depan pintu apartemen. Difoto suami yang dia gak bisa ikut foto karena masih kusut belum mandi abis momong anak. Ngasih kabar ke sana ke sini biar yang lain ikut happy. Perut masih keroncongan karena puasa dan siap-siap buat makanan berbuka. Yang penting udah lulus, Yaaaay!!! Udah bisa netflix-an gak ada beban. 
 
