@@ -14,7 +14,7 @@ Yah begitulah, akhirnya saya harus mengikuti sidang ujian itu juga, tak bisa dit
 
 Saya ingat banget sidang ujian bertepatan di bulan puasa dan menjelang libur lebaran. Juga sebenarnya jatoh di tanggal merah perayaan kenaikan Yesus. Tapi bapak dosen lupa tanggal dan saya juga. Pas kita ngomongin itu sebelum sidang, jadinya malah ketawa-ketawa mengingat kelupaan hari itu.
 
-Untungnya suami sudah berada di Bandung waktu itu, jadi dia bisa jagain anak lanang sementara saya ujian. Saya memakai unit apartemen yang tadinya kita sewa buat dia isolasi mandiri pulang dari Amsterdam. Memang pas sekali, saya sewa unit itu selama sebulan dan dia cuma butuh isolasi 14 hari, jadi unit itu bisa dipakai lagi buat keperluan lain. Saya pun sidangnya bisa lebih tenang, gak berisik sama celotehan si bocah karena dia berada di unit yang sama. 
+Untungnya suami sudah berada di Bandung waktu itu, jadi dia bisa jagain anak lanang sementara saya ujian. Saya memakai unit apartemen yang tadinya kita sewa buat dia isolasi mandiri pulang dari Amsterdam. Memang pas sekali, saya sewa unit itu selama sebulan dan dia cuma butuh isolasi 14 hari, jadi unit itu bisa dipakai lagi buat keperluan lain. Saya pun sidangnya bisa lebih tenang, gak berisik sama celotehan si bocah karena aslinya dia cerewet kalau lagi di rumah. 
 
 Memakai baju yang sudah saya siapkan untuk sidang offline, akhirnya sidang itu terlewati juga. Sejauh yang saya alami sih sidangnya berjalan lancar. Ada satu dua yang saya jawab dengan rada mikir, tapi yang secara keseluruhan saya sih pede aja, gak nyangka juga. Mehehe. 
 
