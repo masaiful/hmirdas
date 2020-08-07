@@ -4,7 +4,7 @@ date: 2020-07-26T11:04:03.599Z
 ---
 Mau cerita pengalaman tentang sidang tesis dulu, yang mau tidak mau harus saya lewati biar bisa lulus dari kampus gajah itu. Dengan pandemi ini tentu saja harus dilakukan melalui online. 
 
-Sebenarnya dengan jeda yang cukup panjang dari sidang pembahasan ke sidang ujian menjadikan saya sudah siap banget. Saya memang menunda sidang ujian karena memang belum siap untuk lulus dengan cepat, karena satu dan lain hal lah, hehehe. Intinya saya gak mau wisuda di bulan April, maunya Juli aja. 
+Sebenarnya dengan jeda yang cukup panjang dari sidang pembahasan ke sidang ujian menjadikan saya sudah siap aja. Saya memang menunda sidang ujian karena memang belum siap untuk lulus dengan cepat, karena satu dan lain hal lah, hehehe. Intinya saya gak mau wisuda di bulan April, maunya Juli aja. 
 
 Omong-omong tentang sidang, jurusan saya ada 2 kali sidang untuk lulus tesis yaitu Sidang Pembahasan dan Sidang Ujian. Dengan dosen penguji yang sama, sidang pembahasan ini akan membahas tesis secara keseluruhan dan penguji akan bertanya dan mengoreksi dan itu bisa dijadikan "masukan" dalam membuat tesis itu siap tempur di sidang ujian. Progress dari sidang pembahasan ke sidang ujian ini akan jadi pertimbangan juga sepertinya oleh dosen pembimbing buat ngasih nilai akhir nantinya.
 
