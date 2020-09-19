@@ -8,3 +8,8 @@ fields:
 - type: datetime
   name: date
   label: date
+  default: now
+- name: tag
+  type: tag_list
+  default: []
+  label: tag
