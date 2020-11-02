@@ -3,7 +3,6 @@ author = "Hilma"
 categories = ["ads"]
 date = 2012-06-25T15:37:00Z
 description = ""
-draft = true
 slug = "yang-mau-cantik-yang-mau-cantik"
 tags = ["ads"]
 title = "Yang Mau Cantik..Yang Mau Cantik.."
