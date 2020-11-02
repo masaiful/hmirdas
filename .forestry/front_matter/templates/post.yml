@@ -14,4 +14,5 @@ fields:
   default: []
   label: tag
 pages:
+- content/posts/adaff.md
 - content/posts/mari-ngeblog.md
