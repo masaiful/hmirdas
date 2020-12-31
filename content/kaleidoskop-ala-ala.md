@@ -56,7 +56,7 @@ Lebaran tahun ini juga sendu. Cuma bertiga di apartemen yang sudah sepi. Tanpa s
 
 ![](/img/uploads/photo_2020-12-31-22-17-49.jpeg)
 
-**Juni**, kita memutuskan balik ke Jakarta, eh Tangsel ding. Sesudah survey bagaimana cara balik di saat situasi masih lockdown, akhirnya ketemu solusinya. Ini adalah perjalanan pertama dengan kendaraan umum sejak lockdown buat saya. Persiapannya udah kayak apa deh.
+**Juni**, kita memutuskan balik ke Jakarta, eh Tangsel. Sesudah survey bagaimana cara balik di saat situasi masih lockdown, akhirnya ketemu solusinya. Ini adalah perjalanan pertama dengan kendaraan umum sejak lockdown buat saya. Persiapannya udah kayak apa deh.
 
 Kita akhirnya memutuskan untuk benerin kondisi rumah. Ganti atap yang pada bocor, nambal plafon, ganti ubin lantai, benerin pintu, dll. Cukup berfaedah ya sodara-sodaraaa. 
 
