@@ -78,7 +78,7 @@ Selain itu ya ngantor via zoom, diselingi menemani anak melakukan tugas sekolah,
 
 **Oktober**, di bulan ini saya akhirnya ngeh kalau hamil lagi. Sebenarnya udah feeling, tapi masih takut-takut aja gitu kalau ternyata enggak jadi. Sempat trauma karena pernah miscarriage. Ngecek ke dokter dan dokter sudah memastikan. 
 
-**Nopember** berlalu dengan lambat. Hamil ini ternyata bikin gak fit di pagi hari. Kondisi paling mual saya adalah pagi menjelang siang. Selain mual itu ternyata juga jadi gampang capek. Kalau gak ada kesempatan tiduran di siang hari, maka sore akan terasa kelelahan sekali. Tapi syukurnya tidak sampai di fase muntah-muntah terus sih. Muntah paling sekali dua kali kalau udah di tahap sakit kepala. 
+**Nopember** berlalu dengan lambat. Hamil ini ternyata bikin gak fit di pagi hari. Kondisi paling mual saya adalah pagi menjelang siang. Selain mual itu ternyata juga jadi gampang capek. Kalau gak ada kesempatan tiduran di siang hari, maka sore akan terasa kelelahan sekali. Tapi syukurnya tidak sampai di fase muntah terus-terusan. Muntah paling sekali dua kali kalau udah di tahap sakit kepala. 
 
 **Desember** adalah bulan kegalauan karena suami harus balik ke Amsterdam. Sebenarnya dia sudah dapat kompensasi 2 bulan dari keharusan kembali ke Belanda yang mustinya di bulan Oktober lalu. Kantornya pun sebenarnya masih menerapkan WFH secara penuh, tapi ya karena kewajiban imigrasi, jadi musti balik deh. 
 
