@@ -76,7 +76,7 @@ Selain itu ya ngantor via zoom, diselingi menemani anak melakukan tugas sekolah,
 
 **September**, ada apa ya di September? Gak ada yang berarti. Padahal ini bulan ulang tahun saya, tapi ya mau ngapain juga sih. :)))
 
-**Oktober**, di bulan ini saya akhirnya memastikan kalau hamil lagi. Sebenarnya udah feeling, tapi masih takut-takut aja gitu kalau ternyata enggak jadi. Sempat trauma karena pernah miscarriage. Selain itu, ya biasa aja.
+**Oktober**, di bulan ini saya akhirnya ngeh kalau hamil lagi. Sebenarnya udah feeling, tapi masih takut-takut aja gitu kalau ternyata enggak jadi. Sempat trauma karena pernah miscarriage. Ngecek ke dokter dan dokter sudah memastikan. 
 
 **Nopember** berlalu dengan lambat. Hamil ini ternyata bikin gak fit di pagi hari. Kondisi paling mual saya adalah pagi menjelang siang. Selain mual itu ternyata juga jadi gampang capek. Kalau gak ada kesempatan tiduran di siang hari, maka sore akan terasa kelelahan sekali. Tapi syukurnya tidak sampai di fase muntah-muntah terus sih. Muntah paling sekali dua kali kalau udah di tahap sakit kepala. 
 
