@@ -46,7 +46,7 @@ Tapi di pertengahan April memutuskan balik ke apartemen. Bagaimanapun juga terny
 
 **Mei,** suami akhirnya memutuskan pulang ke Indonesia.  Yaaaay happy sekali. Tentunya lebih baik lockdown sama keluarga daripada sendiri di Amsterdam. Toh kantornya full WFH. Saya senang sekali ada orang buat berbagi kecemasan di kala begini dan pikirannya juga tidak terbagi memikirkan dia di sana sendirian.
 
-Ketika suami datang, kita memutuskan jaga jarak dulu dan akan mengisolasi diri selama 2 minggu. Kami sewa lagi 1 unit terpisah biar untuk isolasi sampai saatnya nanti kumpul lagi.
+Ketika suami datang, kita memutuskan jaga jarak dulu dan akan mengisolasi diri selama 2 minggu. Kami sewa lagi 1 unit apartemen untuk isolasi sampai saatnya nanti kumpul lagi.
 
 Mei juga bertepatan dengan bulan puasa. Jadi saya menyiapkan sahur dan berbuka buat dia juga. Sayangnya unit yang kita sewa untuk suami beda tower dengan yang saya tepati. Jadinya ketika mau makan sahur, dia musti nyebrang tower dulu buat ambil makanan begitupun saat berbuka. Tapi melihat fisiknya dari dekat aja happy walaupun belum bisa pelukan XD Hisham juga mengerti dan sabar untuk menunggu. Ketika akhirnya bisa ngumpul lagi, sungguh melegakan.
 
