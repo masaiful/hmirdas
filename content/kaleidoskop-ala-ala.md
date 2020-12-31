@@ -62,7 +62,7 @@ Kita akhirnya memutuskan untuk benerin kondisi rumah. Ganti atap yang pada bocor
 
 ![](/img/uploads/photo_2020-12-31-22-20-44.jpeg)
 
-**Juli** saatnya Hisham sekolah lagi. Akhirnya kita mendaftarkan dia di sekolah swasta di dekat rumah, yang ke sana tinggal jalan kaki. Tentu saja sekolahnya via online. Jadi kesibukan saya ya menemani dia sekolah saja. 
+**Juli** saatnya Hisham sekolah lagi. Akhirnya kita mendaftarkan dia di sekolah swasta di dekat rumah, yang ke sana tinggal jalan kaki. Tentu saja sekolahnya via online. Jadi kesibukan saya sehari-hari ya menemani dia sekolah saja, sedangkan suami di depan laptop pukul 9 pagi sampai 5 sore. Walaupun di kondisi tertentu, dia bisa tinggalin kalau saya butuh bantuan.
 
 Saya bersyukur Hisham adalah anak yang gampang dikasih pengertian. Dia tidak merepotkan di tengah kondisi harus sekolah jarak jauh begini. Saya juga tidak mau menuntut apa-apa dengan aktifitas yang satu itu. Dia sudah mau bertahan dengan kondisi begini saja, saya sudah cukup senang.
 
