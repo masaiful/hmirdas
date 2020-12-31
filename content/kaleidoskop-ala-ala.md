@@ -44,7 +44,7 @@ Saya balik ke Cimahi untuk melanjutkan lockdown.
 
 Tapi di pertengahan April memutuskan balik ke apartemen. Bagaimanapun juga ternyata di rumah sendiri itu menyenangkan.
 
-**Mei** suami akhirnya memutuskan pulang ke Indonesia.  Yaaaay happy sekali. Tentunya lebih baik lockdown sama keluarga daripada sendiri. di Amsterdam, toh kantornya full WFH. Saya senang sekali ada orang buat berbagi kecemasan di kala begini dan pikirannya juga tidak terbagi memikirkan dia di sana sendirian.
+**Mei,** suami akhirnya memutuskan pulang ke Indonesia.  Yaaaay happy sekali. Tentunya lebih baik lockdown sama keluarga daripada sendiri. di Amsterdam, toh kantornya full WFH. Saya senang sekali ada orang buat berbagi kecemasan di kala begini dan pikirannya juga tidak terbagi memikirkan dia di sana sendirian.
 
 Ketika suami datang, kita tetap jaga jarak karena sudah memutuskan akan mengisolasi diri dulu selama 2 minggu. Kami sewa lagi 1 unit terpisah biar untuk isolasi sampai saatnya nanti kumpul lagi.
 
