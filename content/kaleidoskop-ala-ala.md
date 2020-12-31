@@ -50,7 +50,7 @@ Ketika suami datang, kita memutuskan jaga jarak dulu dan akan mengisolasi diri s
 
 Mei juga bertepatan dengan bulan puasa. Jadi saya menyiapkan sahur dan berbuka buat dia juga. Sayangnya unit yang kita sewa untuknya beda tower dengan yang saya tepati. Jadinya ketika mau makan sahur, dia musti nyebrang tower dulu buat ambil makanan begitupun saat berbuka. Tapi melihat fisiknya dari dekat aja happy walaupun belum bisa pelukan XD Hisham juga mengerti dan sabar untuk menunggu. Ketika akhirnya bisa ngumpul lagi, sungguh melegakan.
 
-Di bulan ini jugalah saya akhirnya dijadwalkan ulang buat sidang ujian. Saya memakai unit yang disewa untuk suami isolasi tadinya untuk tempat ujian sidang, agar tenang dari suara bocah manggil-manggil emaknya. Dapat juga gelar master itu, sodara sodaraaaa.
+Di bulan ini jugalah saya akhirnya dijadwalkan ulang buat sidang ujian. Saya memakai unit yang disewa untuk suami isolasi tadinya untuk tempat ujian sidang. Agar tenang dari suara bocah manggil-manggil emaknya. Dapat juga gelar master itu, sodara sodaraaaa.
 
 Lebaran tahun ini juga sendu. Cuma bertiga di apartemen yang sudah sepi. Tanpa shalat ied karena suasana pandemi. Beli ketupat beberapa porsi biar berasa lebaran dikit, trus jalan-jalan aja di pinggir jalan Cihampelas yang lengang. Dinikmati saja luuuur.
 
