@@ -48,7 +48,7 @@ Tapi di pertengahan April memutuskan balik ke apartemen. Bagaimanapun juga terny
 
 Ketika suami datang, kita memutuskan jaga jarak dulu dan akan mengisolasi diri selama 2 minggu. Kami sewa lagi 1 unit apartemen untuk isolasi sampai saatnya nanti kumpul lagi.
 
-Mei juga bertepatan dengan bulan puasa. Jadi saya menyiapkan sahur dan berbuka buat dia juga. Sayangnya unit yang kita sewa untuk suami beda tower dengan yang saya tepati. Jadinya ketika mau makan sahur, dia musti nyebrang tower dulu buat ambil makanan begitupun saat berbuka. Tapi melihat fisiknya dari dekat aja happy walaupun belum bisa pelukan XD Hisham juga mengerti dan sabar untuk menunggu. Ketika akhirnya bisa ngumpul lagi, sungguh melegakan.
+Mei juga bertepatan dengan bulan puasa. Jadi saya menyiapkan sahur dan berbuka buat dia juga. Sayangnya unit yang kita sewa untuknya beda tower dengan yang saya tepati. Jadinya ketika mau makan sahur, dia musti nyebrang tower dulu buat ambil makanan begitupun saat berbuka. Tapi melihat fisiknya dari dekat aja happy walaupun belum bisa pelukan XD Hisham juga mengerti dan sabar untuk menunggu. Ketika akhirnya bisa ngumpul lagi, sungguh melegakan.
 
 Di bulan ini jugalah saya akhirnya dijadwalkan ulang buat sidang ujian. Saya memakai unit yang disewa untuk suami isolasi tadinya untuk tempat ujian sidang, agar tenang dari suara bocah manggil-manggil emaknya. Akhirnya dapat juga gelar master itu, sodara sodaraaaa.
 
