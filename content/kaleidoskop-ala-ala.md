@@ -68,7 +68,7 @@ Saya bersyukur Hisham adalah anak yang gampang dikasih pengertian. Dia tidak mer
 
 Saya juga diwisuda di bulan ini. Ngerasain yang namanya wisuda virtual, mehehe. Tidak pakai toga, karena toganya belum dibagiin. Cuma hadir lewat zoom dan ngeliat nama ditampilkan di layar laptop. Tapi ya Alhamdulillah yaaa... udah lulus. 
 
-**Agustus** saya harus ngantor. Sebenarnya saya belum ikhlas keluar rumah di saat kondisi masih begini, tapi ya mau gimana lagi. Sekali-dua kali seminggu saya ke kantor, walaupun kadang diselingi kondisi lockdown kalau lagi banyak yang positif di kantor atau Jakarta lagi menarik "rem darurat"
+**Agustus** saya harus ngantor. Sebenarnya saya belum ikhlas keluar rumah di saat kondisi masih begini, tapi ya mau gimana lagi. Sekali-dua kali seminggu saya ke kantor, walaupun kadang diselingi kondisi lockdown kalau lagi banyak yang positif di kantor atau kalau Jakarta lagi menarik "rem darurat"
 
 Selain itu ya ngantor via zoom, diselingi menemani anak melakukan tugas sekolah, masak, dll. Saya juga menambah aktifitas dengan jalan 10ribu langkah yang lumayan rajin saya jalani.
 
