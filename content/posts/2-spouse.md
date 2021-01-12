@@ -4,7 +4,7 @@ tag = []
 title = "#2 Spouse"
 
 +++
-Pas banget topik ini sekarang karena baru beberapa hari yang lalu kita anniversary pernikahan. Tapi bingung juga mau cerita apa sih X)
+Pas banget topik ini sekarang karena baru beberapa hari yang lalu kita anniversary pernikahan. Tapi bingung juga mau cerita apa sih X))
 
 Saya hampir tidak pernah cerita tentang dia. Posting tentang dia di Socmed juga paling kalau lagi anniversary aja. Langsung deh jebret, foto dia bermunculan. Selain itu ya jarang.
 
@@ -30,6 +30,6 @@ Yang paling saya kagumi dari dia adalah kegigihan. Ketika dia menginginkan sesua
 
 Apalagi ya yang bisa diceritain? Saya sudah kehabisan ide. Ini kayak baik-baik semua ya. Mungkin nanti bikin postingan yang jelek-jelek, dipikirin dulu deh apa, sekarang belum tau X))
 
-Sekarang kita lagi LDR, doi di NL dan saya masih di Indonesia. Sejauh ini semua baik-baik saja, komunikasi gak pernah mandeg, alhamdulillah. 
+Sekarang kita lagi LDR, doi di NL dan saya masih di Indonesia. Sejauh ini semua baik-baik saja, komunikasi gak pernah mandeg, alhamdulillah.
 
-Sabar-sabar terus sama saya ya...Pak'e. 
+Sabar-sabar terus sama saya ya...Pak'e.
