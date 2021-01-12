@@ -22,7 +22,7 @@ Dia tegas, saya kagak jelas. Makanya kalau mengambil keputusan dan mau cepat, sa
 
 Dia orangnya cenderung on-time, saya suka menunda-nunda. Misalnya kalau mau tidur dan rumah berantakan, saya memilih membereskan besok pagi sedangkan dia lebih suka diberesin dulu baru tidur, hahaha. Haduh jadi malu. Dalam melakukan sesuatu, dia akan melakukan langsung sesudah diomongin, kalau saya entar-entar aja.
 
-Namun ada sifat yang menurut saya sama, saya gak suka keramaian dan dia juga. Kita bisa aja berminggu-minggu gak ketemu orang. Walaupun mungkin lebih parah saya dalam urusan ketemu orang baru, saya lebih kagok sedangkan dia lebih supel.
+Namun tetap ada sifat yang menurut saya mirip, saya gak suka keramaian dan dia juga. Kita bisa aja berminggu-minggu gak ketemu orang. Walaupun mungkin lebih parah saya dalam urusan ketemu orang baru, saya lebih kagok sedangkan dia lebih supel.
 
 Satu hal yang saya syukuri dari memiliki dia ini adalah solutif (((memiliki))). Dari sejak sebelum menikah, kalau ada permasalahan dan dilempar ke dia, bakal ada solusinya. Sampai sekarang pun urusan listrik mati, atau remot AC kenapa gak bisa dipencet atau gimana cara buka bagian keran, saya bisa tanya dia. Dari urusan domestik sampai urusan internasional, uwopo. Apalagi urusan teknologi dan gejet.
 
