@@ -18,7 +18,7 @@ Urusan selera musik, buku, film atau makanan banyak kesamaan. Kenal suami lumaya
 
 Sifat-sifat kita yang berbeda. Dia lebih teratur sedangkan saya random. Makanya ketika orang sering bilang kalau lemari bagian istri biasanya lebih rapi daripada bagian suami, lemari di rumah saya sih gak gitu XD Saya bisa saja membiarkan rumah berantakan, dia mah enggak.
 
-Dia tegas, saya kagak jelas. Makanya kalau mengambil keputusan dan mau cepat, saya tanya dia dulu aja biar mantap. Kalau mengandalkan diri sendiri saya suka lama memutuskannya. Saking tegasnya, di awal mula menikah saya suka keder sendiri dengan sifat yang ini. Tapi semakin bertambah usia menikah saya semakin mensyukuri sifat ini, sangat membantu. Satu hal yang musti saya tekan ke diri sendiri, jangan baperan :))
+Dia tegas, saya kagak jelas. Makanya kalau mengambil keputusan dan mau cepat, saya tanya dia dulu aja biar mantap. Kalau mengandalkan diri sendiri saya suka lama memutuskannya. Saking tegasnya, di awal mula menikah saya suka keder sendiri dengan sifat yang ini. Tapi semakin bertambah usia menikah saya semakin mensyukuri sifat ini, sangat membantu. Satu hal yang musti saya tekankan ke diri sendiri, jangan baperan :))
 
 Dia orangnya cenderung on-time, saya suka menunda-nunda. Misalnya kalau mau tidur dan rumah berantakan, saya memilih membereskan besok pagi sedangkan dia lebih suka diberesin dulu baru tidur, hahaha. Haduh jadi malu. Dalam melakukan sesuatu, dia akan melakukan langsung sesudah diomongin, kalau saya entar-entar aja.
 
