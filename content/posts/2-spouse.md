@@ -14,9 +14,9 @@ Mari lah cerita tentang PakSuami, tentang apa-apa yang bisa diceritakan saja, eh
 
 Saya dan suami ini berbeda suku, saya Minang dia Jawa Timur. Setelah saya hidup 7 tahun bersama dia, kesimpulannya menurut saya adalah : secara selera kami punya kesamaan tapi secara sifat jauh berbeda.
 
-Urusan selera musik, buku, film atau makanan banyak kesamaan. Kenal suami lumayan lama sebelum menikah jadi saya tau kalau semua lagu yang saya suka dia juga suka, pun sebaliknya. Buku-buku yang dia koleksi, saya juga menyukainya. Bahkan sesudah menikah bahkan kita punya 2 buku di rak yang percis sama. Film-film yang saya tonton pun biasanya begitu. Kalau urusan makanan, karena dia orangnya gak pilih-pilih makanan, hampir semua yang saya masak, bisa dia nikmati.
+Urusan selera musik, buku, film atau makanan banyak kesamaan. Kenal suami lumayan lama sebelum menikah jadi saya tau kalau semua lagu yang saya suka dia juga suka, pun sebaliknya. Buku-buku yang dia koleksi, saya juga menyukainya. Bahkan sesudah menikah bahkan kita punya 2 buku di rak yang percis sama. Film-film yang saya tonton pun biasanya begitu. Kalau urusan makanan, karena dia orangnya gak pilih-pilih makanan, hampir semua yang saya masak, bisa dia makan.
 
-Sifat-sifat yang berbeda. Dia lebih teratur sedangkan saya random. Makanya ketika orang sering bilang kalau lemari bagian istri biasanya lebih rapi daripada bagian suami, lemari di rumah saya sih gak gitu XD Saya bisa saja membiarkan rumah berantakan, dia mah enggak.
+Sifat-sifat kita yang berbeda. Dia lebih teratur sedangkan saya random. Makanya ketika orang sering bilang kalau lemari bagian istri biasanya lebih rapi daripada bagian suami, lemari di rumah saya sih gak gitu XD Saya bisa saja membiarkan rumah berantakan, dia mah enggak.
 
 Dia tegas, saya kagak jelas. Makanya kalau mengambil keputusan dan mau cepat, saya tanya dia dulu aja biar mantap. Kalau mengandalkan diri sendiri saya suka lama memutuskannya. Saking tegasnya, di awal mula menikah saya suka keder sendiri dengan sifat yang ini. Tapi semakin bertambah usia menikah saya semakin mensyukuri sifat ini, sangat membantu. Satu hal yang musti saya tekan ke diri sendiri, jangan baperan :))
 
