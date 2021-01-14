@@ -1,7 +1,7 @@
 +++
 date = 2021-01-12T07:59:02Z
 tag = []
-title = "Number 2 Spouse"
+title = "Nr2: Spouse"
 
 +++
 Pas banget topik ini sekarang karena baru beberapa hari yang lalu kita anniversary pernikahan. Tapi bingung juga mau cerita apa sih X))
