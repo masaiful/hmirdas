@@ -10,7 +10,7 @@ Saya memakai space di bawah tangga sebagai tempat untuk meletakkan sebuah meja d
 
 ![](/img/uploads/photo_2021-01-21-12-40-56.jpeg)
 
-Meja di bawah tangga ini tipikal expandable. Sebelumnya hanya difungsikan sebagai meja makan. Sejak aktifitas di meja ini semakin banyak, fungsi luas ini kita maksimalkan, ya merangkap sebagai meja kerja. 
+Meja di bawah tangga ini tipikal expandable. Sebelumnya hanya difungsikan sebagai meja makan. Sejak aktifitas di meja ini semakin banyak, fungsi expand ini kita maksimalkan, ya merangkap sebagai meja kerja. 
 
 Sebelum suami balik ke Amsterdam, biasanya dia yang menguasai posisi itu. Saya sering pakai sisi yang satunya karena lebih leluasa sehingga lebih gampang disambi mengerjakan aktifitas lain, dan dekat dengan dapur. Sejak doi gak di rumah lagi, posisi ini bisa saya kuasai. 
 
