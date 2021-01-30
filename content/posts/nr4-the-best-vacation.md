@@ -6,7 +6,7 @@ title = "Nr4 : The Best Vacation"
 +++
 Sesudah dewasa ini, setiap liburan terasa sama saja. Mungkin karena sekarang jalan-jalan itu menjadi hal yang gampang. Yang penting keluar rumah dan tidur di kasur yang beda dari rutinitas, ditambah dengan aroma khas hotel, itu saja sudah cukup.
 
-Tapi liburan yang berkesan buat saya di waktu masih anak-anak. Dan yang terbaik adalah sewaktu diajak kakek ke Jakarta untuk pertama kalinya. Sepertinya waktu itu saya masih TK atau SD kelas 1, tapi kesannya masih ada sampai sekarang.
+Tapi liburan yang berkesan buat saya adalah di waktu masih kanak-kanak. Dan yang terbaik adalah sewaktu diajak kakek ke Jakarta untuk pertama kalinya. Sepertinya waktu itu saya masih TK atau SD kelas 1, tapi kesannya masih ada sampai sekarang.
 
 Ke Jakarta waktu masih kecil itu sebenarnya cuma untuk mengunjungi rumah keluarga-keluarg yang menetap di Jakarta. Transportasinya lewat perjalanan darat aja dengan naik bus AKAP. Karena pesawat tergolong masih susah dan tentu saja mahal banget (yaaa ketahuan umur).
 
