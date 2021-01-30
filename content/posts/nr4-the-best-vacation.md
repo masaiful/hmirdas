@@ -8,7 +8,7 @@ Sesudah dewasa ini, setiap liburan terasa sama saja. Mungkin karena sekarang jal
 
 Tapi liburan yang berkesan buat saya adalah di waktu masih kanak-kanak. Dan yang terbaik adalah sewaktu diajak kakek ke Jakarta untuk pertama kalinya. Sepertinya waktu itu saya masih TK atau SD kelas 1, tapi kesannya masih ada sampai sekarang.
 
-Ke Jakarta waktu masih kecil itu sebenarnya cuma untuk mengunjungi rumah keluarga-keluarg yang menetap di Jakarta. Transportasinya lewat perjalanan darat aja dengan naik bus AKAP. Karena pesawat tergolong masih susah dan tentu saja mahal banget (yaaa ketahuan umur).
+Ke Jakarta waktu masih kecil itu sebenarnya cuma untuk mengunjungi rumah keluarga-keluarga yang menetap di Jakarta. Transportasinya lewat perjalanan darat aja dengan naik bus AKAP. Karena pesawat tergolong masih susah dan tentu saja mahal banget (yaaa ketahuan umur).
 
 Kenapa yang terbaik, pertama, karena itu adalah liburan paling jauh saya pertama kali. Sebagai orang daerah yang jauh dari ibukota, dulu mengunjungi Jakarta itu terasa spesial. Dan kedua, karena bersama kakek. Kakek adalah sosok idola saya semasa kecil, pun saudara dan sepupu-sepupu yang lain. Diajak vakansi oleh beliau semacam kebanggan karena merasa jadi cucu yang di sayang. Yah padahal mereka juga bakal pasti dapat giliran diajak jalan-jalan sih :))
 
