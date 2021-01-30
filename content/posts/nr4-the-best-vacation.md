@@ -1,7 +1,7 @@
 +++
 date = 2021-01-28T03:22:59Z
 tag = []
-title = "Nr4 :  The Best Vacation"
+title = "Nr4 : The Best Vacation"
 
 +++
 Sesudah dewasa ini, setiap liburan terasa sama saja. Mungkin karena sekarang jalan-jalan itu menjadi hal yang gampang saja. Yang penting keluar rumah dan tidur di kasur yang beda dengan aroma khas hotel, itu saja udah cukup. 
