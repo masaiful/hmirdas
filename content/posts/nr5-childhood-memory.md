@@ -16,6 +16,6 @@ Sekali-sekali saja kita pulang kampung. Jarak dari kampung halaman ke tempat itu
 
 Ketika akhirnya bapak dipindahkan lagi ke kampung halaman kami, saya ingat sekali, orang kampung itu sangat bersedih. Ada yang menangis karena mungkin mereka merasa kehilangan. Beberapa orang memeluk kami satu persatu sambil menangis.
 
-Akhirnya kampung itu cuma menjadi kenangan saja. Sampai umur segini mungkin 2 kali saya datang berkunjung ke sana. Teman main dulu pun sudah tidak saya kenal, bahkan bentuk daerahnya. Karena pasti juga sudah banyak berubah.
+Akhirnya kampung itu cuma menjadi kenangan saja. Sampai umur segini mungkin 2 kali saja saya datang berkunjung ke sana. Teman main dulu pun sudah tidak saya kenal, bahkan ingatan tentang bentuk daerahnya sudah tidak ada. Karena pasti juga sudah banyak berubah.
 
 Daerah itu bernama Bayang, di Pesisir Selatan ![foto diambil di sini : https://www.jelajahsumbar.com/jembatan-akar-bayang/](/img/uploads/img_2655-1.jpg "Jembatan Akar")
