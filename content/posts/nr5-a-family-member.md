@@ -30,4 +30,4 @@ Anak-anak juga seumuran sehingga aktifitas mereka juga mendekatkan kita. Walaupu
 
 Dia ibu yang tangguh. Punya anak 3 yang masih kecil-kecil, dengan tetap kekeuh memasak sendiri di tengah kesibukan mengajar di sekolahnya. Salah satu keahlian masak nyokap yang hebat itu kayaknya turunnya ke dia.
 
-Wah iya, sebentar lagi dia ulang tahun....
+Wah iya, sebentar lagi dia ulang tahun.... Selamat Ulang Tahun Uni... kalau baca XD
