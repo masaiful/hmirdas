@@ -22,7 +22,7 @@ Sehabis kuliah S1 di UIN Padang, dia keterima jadi PNS dan kemudian ikut seleksi
 
 Omong-omong soal berantem, saya dan dia dulu memang seperti anjing dan kucing, gak bisa deket karena ujung-ujungnya jadi marahan. Padahal kita akhirnya kuliah di kota yang sama, sehingga mau tak mau membuat kita sering bertemu. Apa aja bisa menjadi sumber berantem. Paling sering karena saya orangnya malas, hehehe. Atau selalu mendebat dia dalam berpendapat, mungkin ya :))
 
-Tapi kalau berantem, saya selalu memposisikan diri tak akan pernah kalah. Jadi kalau melihat saya berantem dengan dia dan jika ada salah seorang yang menangis, kemungkinan besar bukan saya. Yang ujung-ujungnya saya akan dimarahin bokap karenanya, mehehe.
+Tapi kalau berantem, saya selalu memposisikan diri tak akan pernah kalah. Jadi kalau melihat saya berantem dengan dia dan jika ada salah seorang yang menangis, kemungkinan besar bukan saya. Ujung-ujungnya saya akan dimarahin bokap karenanya, mehehe.
 
 Tapi semakin dewasa ternyata kita semakin dekat dan semakin membutuhkan satu sama lain. Dia sering bertanya hal-hal yang dia bingung, saya juga selalu mengandalkan dia ketika dibutuhkan. Sering curhat macam-macam dan memberi semangat. Mungkin juga karena kita sudah saling berjauhan, jatohnya malah kangen.
 
