@@ -4,7 +4,7 @@ tag = []
 title = "Nr5 : a Family Member"
 
 +++
-Hmm... menceritakan A Family Member? Siapa ya? Mungkin kakak saya saja. Kakak saya satu-satunya.
+Hmm....menceritakan A Family Member? Siapa ya? Mungkin kakak saya saja. Kakak saya satu-satunya.
 
 Dari kami berempat bersaudara, kakak atau yang biasa saya panggil Uni ini adalah sosok yang paling sering berantem dengan saya di waktu kecil. Kalau dengan si adik saya lebih ke berdebat, kalau sama si uni berantem abiiiz
 
