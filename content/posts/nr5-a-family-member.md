@@ -20,7 +20,7 @@ Ketika Tsanawiyah selalu jadi idola. Itu juga didukung karena dia selalu aktif b
 
 Sehabis kuliah S1 di UIN Padang, dia keterima jadi PNS dan kemudian ikut seleksi beasiswa S2. Akhirnya lulus UIN Jakarta, sungguh orang yang beruntung. Dapat suami juga ketika sama-sama kuliah di UIN ini.
 
-Omong-omong soal berantem, saya dan dia memang seperti anjing dan kucing, gak bisa deket karena ujung-ujungnya jadi marahan. Padahal kita akhirnya kuliah di kota yang sama, sehingga mau tak mau membuat kita sering bertemu. Apa aja bisa menjadi sumber berantem. Paling sering karena saya orangnya malas, hehehe. Atau selalu mendebat dia dalam berpendapat, mungkin ya :))
+Omong-omong soal berantem, saya dan dia dulu memang seperti anjing dan kucing, gak bisa deket karena ujung-ujungnya jadi marahan. Padahal kita akhirnya kuliah di kota yang sama, sehingga mau tak mau membuat kita sering bertemu. Apa aja bisa menjadi sumber berantem. Paling sering karena saya orangnya malas, hehehe. Atau selalu mendebat dia dalam berpendapat, mungkin ya :))
 
 Tapi kalau berantem, saya selalu memposisikan diri tak akan pernah kalah. Jadi kalau melihat saya berantem dengan dia dan jika ada salah seorang yang menangis, kemungkinan besar bukan saya. Yang ujung-ujungnya saya akan dimarahin bokap karenanya, mehehe.
 
