@@ -6,7 +6,7 @@ title = "Nr5 : A Family Member"
 +++
 Hmm....menceritakan A Family Member? Siapa ya? Mungkin kakak saya saja. Kakak saya satu-satunya.
 
-Dari kami berempat bersaudara, kakak atau yang biasa saya panggil Uni ini adalah sosok yang paling sering berantem dengan saya di waktu kecil. Kalau dengan si adik saya lebih ke berdebat, kalau sama si uni berantem abiiiz
+Dari kami berempat bersaudara, kakak atau yang biasa saya panggil Uni ini adalah sosok yang paling sering berantem dengan saya di waktu kecil. Kalau dengan si adik, saya lebih ke berdebat, kalau sama si uni, berantem abiiiz
 
 Saya dan dia itu berjarak setahun doang, kebayang kan posisi saya itu seolah bayangan saja. Baju saya dan dia selalu kembar, kalau gak ya lungsuran :)) Saya selalu berada di sekolah yang sama dari TK sampai Tsanawiyah. Tapi sesudah lulus Tsanawiyah, saya memutuskan lanjut ke SMA negeri sedangkan dia melanjutkan sekolah di yayasan yang sama dengan Tsanawiyah-nya. Akhirnya kita bersimpangan jalan, saya ke jalur umum dia ke jalur agama.
 
@@ -28,6 +28,6 @@ Tapi semakin dewasa ternyata kita semakin dekat dan semakin membutuhkan satu sam
 
 Anak-anak juga seumuran sehingga aktifitas mereka juga mendekatkan kita. Walaupun cuma sekali-sekali saya main ke rumahnya. Apalagi sekarang jaman pandemi, paling cuma video call.
 
-Dia ibu yang tangguh. Punya anak 3 yang masih kecil-kecil, dengan tetap kekeuh memasak sendiri di tengah kesibukan mengajar di sekolahnya. Salah satu keahlian masak nyokap yang hebat itu kayaknya turunnya ke dia. 
+Dia ibu yang tangguh. Punya anak 3 yang masih kecil-kecil, dengan tetap kekeuh memasak sendiri di tengah kesibukan mengajar di sekolahnya. Salah satu keahlian masak nyokap yang hebat itu kayaknya turunnya ke dia.
 
-Wah iya, sebentar lagi dia ulang tahun.... 
+Wah iya, sebentar lagi dia ulang tahun....
