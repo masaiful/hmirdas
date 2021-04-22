@@ -1,12 +1,17 @@
 +++
 date = 2021-04-20T06:29:55Z
-draft = true
 tag = []
 title = "Nr10 : Favorite Jewelry "
 
 +++
-Omong-omong perhiasan seperti kalung, anting atau gelang dengan saya akan susah. Saya bukan pemakaian perhiasan. Punya cincin ya cincin kawin. Yang sudah tidak saya pakai lagi karena kekecilan. Punya kalung pemberian mertua yang saya pakai cuma kalau saya pulang kampung ke kampung halaman suami biar keliatan dipakai. Ada beberapa cincin ya kado pernikahan dari beberapa orang. Gak punya anting karena gak punya tindikan kuping. 
+Ngobrol tentang perhiasan seperti kalung, anting atau gelang dengan saya akan susah. Karena saya bukan pemakaian perhiasan. Punya cincin ya cincin kawin. Yang sudah tidak saya pakai lagi karena kekecilan. Punya kalung pemberian mertua, saya pakai cuma kalau pulang kampung ke kampung halaman suami. Biar keliatan kalau pemberian beliau dipakai. Juga punya beberapa cincin yang dapatnya dari kado pernikahan. Dan gak punya anting karena gak punya tindikan di kuping. 
 
-Waktu kuliah pakai gelang itu ya gelang tali kur, biar gaya-gaya sok anak metal. Kalaupun ada gelang yang kebetulan saya suka dari material yang ada-ada aja, biasanya tidak bertahan lama. Lebih karena impulsif sesaat saja, padahal gak betah. Apalagi yang berkilau seperti emas dan berlian. Bisa dikatakan saya tidak suka benda berkilau. 
+Waktu jaman kuliah pakai gelang itu ya gelang tali kur, biar gaya-gaya sok anak metal. Kalau ada perhiasan yang saya suka karena lihat sekilas, itu pasti karena impulsif sesaat saja, padahal gak pernah betah memakainya. Apalagi seperti emas dan berlian, karena bisa dikatakan saya tidak suka benda berkilau.
 
-Sebagai orang minang yang memakai perhiasan juga adalah sebagai lambang supremasi, saya pernah dinasehatin nyokap ketika pulang kampung setidaknya pakailah satu gelang emas. Saya cuma bisa nyengir aja. Tentu saja karena memang tidak punya. 
+Sebagai orang minang, yang konon memakai perhiasan sebagai lambang supremasi, jadi pernah dinasehatin nyokap ketika pulang kampung. Kata beliau setidaknya pakailah satu gelang emas ketika pulang kampung. Mungkin biar tidak keliatan kayak orang susah di rantau :))  Saya sih cuma bisa nyengir aja dan tentu saja tetap tidak dipakai karena memang karena tidak punya.
+
+Jadi ya bisa dikatakan my favorite jewelry itu ya cincin kawin ini doang. 
+
+![](/img/uploads/photo_2021-04-22-09-43-47.jpeg)
+
+Udah mau cerita itu aja. Babaaay.
