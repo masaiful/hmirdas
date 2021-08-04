@@ -18,7 +18,7 @@ Kepergian ini sempat membuat mati rasa. Kesedihan ini bukan hanya karena menghad
 
 Selama dia sakit saya masih selalu optimis. Walaupun memang menjadi kecut ketika dokter menyarankan pasang ventilator. Papa adalah orang dengan semangat yang tinggi. Selalu ceria dan bahkan menularkannya ke orang lain. Saya selalu optimis dia bisa melewati ini. Hari-hari menunggu papa sembuh adalah hari-hari dengan doa terpanjang dan terdalam siang dan malam. Tapi ternyata virus itu sudah menyerang paru-paru papa sedemikian rupa. 
 
-Tapi saya, anaknya ini, bahkan tidak pulang untuk melepas fisiknya ke liang lahat. Saya memilih tidak pulang ya karena pandemi ini, punya anak berumur 2 bulan membuat saya memutuskan melepas dari jauh. Dan juga karena papa akan diprosesi dengan cepat saja. Dimandikan dan dikafani di rumah sakit, tanpa disemayamkan di rumah langsung dibawa ke pusara. Walaupun papa tetap dishalatkan oleh orang-orang di kampung karena semua orang ingin melepasnya dengan sebaik-baiknya.
+Tapi saya, anaknya ini, bahkan tidak pulang untuk melepas fisiknya ke liang lahat. Saya memilih tidak pulang ya karena pandemi ini, punya anak berumur 2 bulan membuat saya memutuskan melepas dari jauh. Dan juga karena papa akan diprosesi dengan cepat saja jadi tidak akan memungkinkan saya bisa menemui jasadnya. Dia dimandikan dan dikafani di rumah sakit, tanpa disemayamkan di rumah langsung dibawa ke pusara. Walaupun papa tetap dishalatkan oleh orang-orang di kampung karena semua orang ingin melepasnya dengan sebaik-baiknya.
 
 ![](/img/uploads/photo_2021-08-04-14-49-14.jpeg)
 
