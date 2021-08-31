@@ -1,6 +1,5 @@
 +++
 date = 2021-08-31T14:40:53Z
-draft = true
 tag = []
 title = "Papa (2)"
 
