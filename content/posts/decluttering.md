@@ -24,7 +24,9 @@ Kemana barang-barang itu disalurkan? Sebenarnya saya sudah melihat-lihat beberap
 
 Adminnya ramah. Ketika saya menghubungi untuk memberitahukan akan mendonasikan barang-barang layak pakai, langsung di-WA terkait apa saja barang yang bisa didonasikan dan yang tidak. Selanjutnya disuruh isi form dan memberitahukan kapan akan dijemput, abis itu beres deh tinggal tunggu. 
 
-![](/img/uploads/photo_2021-09-06-20-27-44.jpeg)Sebagian dari buku-buku ini juga saya kirimkan ke rumah baca kepunyaan adik angkatan kuliah dulu. Dia tau saya lagi _decluttering_ buku, trus ngasih tau kalau menerima donasi buku untuk rumah bacanya. Akhirnya sebagian saya paketin aja ke sana. Mudah-mudahan berguna dan bisa menambah baca orang-orang di sekitarnya.
+![](/img/uploads/photo_2021-09-06-20-27-44.jpeg)
+
+Sebagian dari buku-buku ini juga saya kirimkan ke rumah baca kepunyaan adik angkatan kuliah dulu. Dia tau saya lagi _decluttering_ buku, trus ngasih tau kalau menerima donasi buku untuk rumah bacanya. Akhirnya sebagian saya paketin aja ke sana. Mudah-mudahan berguna dan bisa menambah baca orang-orang di sekitarnya.
 
 ![](/img/uploads/photo_2021-09-07-06-15-11.jpeg)
 
