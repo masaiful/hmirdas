@@ -6,7 +6,7 @@ title = "Decluttering"
 +++
 Entah dapat pencerahan dari mana, akhirnya kepikiran untuk _decluttering_ barang-barang di rumah. Pada dasarnya saya tidak suka belanja barang tapi kok ternyata barang di rumah ini cukup menumpuk. Tapi sesudah diperhatikan ya karena saya suka mempertahankan barang, jarang membuangnya. Yang paling banyak adalah baju, kemudian buku-buku.
 
-Baju yang banyak itu sebagian besar adalah baju saya, punya suami dan anak cuma sebagian kecil. Tujuan menyimpan karena kondisinya yang masih bagus tentu saja. Walaupun tidak dipakai karena sebagian mayoritas kekecilan. Dengan pembenaran untuk mempertahankannya adalah "ah nanti bakal terpakai lagi setelah berusaha diet dan olahraga". Tapi tentu saja itu berujung wacana dan lingkar badan tak kunjung juga berkurang.
+Baju yang banyak itu sebagian besar adalah baju saya, punya suami dan anak cuma sebagian kecil. Tujuan menyimpan karena kondisinya yang masih bagus tentu saja. Walaupun tidak dipakai karena mayoritas kekecilan. Dengan pembenaran untuk mempertahankannya adalah "ah nanti bakal terpakai lagi setelah berusaha diet dan olahraga". Tapi tentu saja itu berujung wacana dan lingkar badan tak kunjung juga berkurang.
 
 ![](/img/uploads/photo_2021-09-06-21-55-49.jpeg)
 
