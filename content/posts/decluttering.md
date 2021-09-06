@@ -22,6 +22,8 @@ Kemudian ada beberapa barang elektonik yang masih nyala tapi tidak saya gunakan 
 
 Kemana barang-barang itu disalurkan? Sebenarnya saya sudah melihat-lihat beberapa tempat untuk menyalurkan barang-barang ini. Tentu saja saya ingin agar barang-barang ini disumbangkan karena masih layak pakai atau didaur ulang kalau ternyata susah untuk didonasikan. Ada 2 tempat yang menjadi opsi saya yaitu [bberes.id](https://www.instagram.com/stories/highlights/17863511501151822/) dan [donasi barang](https://www.instagram.com/donasibarang/). Masing-masing dari jasa ini ada kelebihannya. Tapi saya akhirnya memilih donasi barang saja. 
 
+Adminnya ramah. Ketika saya menghubungi untuk memberitahukan akan mendonasikan barang-barang layak pakai, langsung di-WA terkait apa saja barang yang bisa didonasikan dan yang tidak. Selanjutnya disuruh isi form dan memberitahukan kapan akan dijemput, abis itu beres deh tinggal tunggu. 
+
 ![](/img/uploads/photo_2021-09-06-20-27-44.jpeg)Sebagian dari buku-buku ini juga saya kirimkan ke rumah baca kepunyaan adik angkatan kuliah dulu. Dia tau saya lagi _decluttering_ buku, trus ngasih tau kalau menerima donasi buku untuk rumah bacanya. Akhirnya sebagian saya paketin aja ke sana. Mudah-mudahan berguna dan bisa menambah baca orang-orang di sekitarnya.
 
 ![](/img/uploads/photo_2021-09-07-06-15-11.jpeg)
