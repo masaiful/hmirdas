@@ -26,6 +26,6 @@ Kemana barang-barang itu disalurkan? Sebenarnya saya sudah melihat-lihat beberap
 
 ![](/img/uploads/photo_2021-09-07-06-15-11.jpeg)
 
-Ketika sebagian barang ini keluar dari rumah ternyata ada perasaan lega, walaupun tidak sehebat Marie Kondo dalam mengorganisirnya dan lemari juga belum sekosong itu. Sesudah ini harus ganti mindset dengan menyimpan barang yang memang buat dipakai saja. Belanja buku sementara stop dulu. Kalau ada barang yang tidak dipakai tapi masih layak, mending disisihkan dan donasikan saja. Dan yang penting, belanja barang harus mindful. Jangan beli karena lucu, atau karena "mumpung diskon" atau karena stress :))
+Ketika sebagian barang ini keluar dari rumah ternyata ada perasaan lega, walaupun tidak sehebat Marie Kondo dalam mengorganisirnya dan lemari juga belum sekosong itu. Sesudah ini harus ganti mindset dengan menyimpan barang yang memang buat dipakai saja. Belanja buku sementara stop dulu. Kalau ada barang yang tidak dipakai tapi masih layak, mending disisihkan dan donasikan saja. Dan yang penting, belanja barang harus _mindful_. Jangan beli karena lucu, atau karena "mumpung diskon" atau karena stress :))
 
 Bye-bye baju dan buku kesayangan. Baik-baik di sana ya... 
