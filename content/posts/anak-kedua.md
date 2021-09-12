@@ -8,7 +8,7 @@ Mungkin beberapa orang tidak tahu kalau saya punya bayi anak kedua. Anda sudah t
 
 Bahkan beberapa orang tidak tau kalau saya lagi hamil, beberapa orang lain tau saya sudah melahirkan aja dan beberapa lagi taunya tau-tau saya udah punya bayi yang udah berumur 3 bulan aja. Bisa dibilang bahkan keluarga pun saya kasih tau di umur kandungan yang relatif sudah agak besar.
 
-Sebenarnya bukan sok-sokan misterius juga. Cuma, mau update foto dan aktifitas hamil di socmed, kok saya tidak pede. Maklum lha ya, hihihihi. Tapi memang ternyata menjalani hamil anak kedua itu gak bakal seheboh anak pertama, itu juga yang saya dengar dari beberapa orang.
+Sebenarnya bukan sok-sokan misterius juga. Cuma, mau update foto dan aktifitas hamil di socmed, kok saya tidak pede. Maklum lha ya, hihihihi. Tapi memang ternyata menjalani hamil anak kedua itu gak bakal seheboh anak pertama, itu juga yang saya dengar dari beberapa orang yang mengalaminya.
 
 ![](/img/uploads/photo_2021-09-12-23-36-22.jpeg)
 
