@@ -12,7 +12,7 @@ Sebenarnya bukan sok-sokan misterius juga. Cuma, mau update foto dan aktifitas h
 
 ![](/img/uploads/photo_2021-09-12-23-36-22.jpeg)
 
-Tapi salah satu penyebabnya juga, saya kadang berada pada fase insecure. Takut keguguran lagi seperti di kehamilan kedua. Jadi saya memilih untuk tidak membicarakan dulu sambil mengupayakan agar semua berjalan lancar.
+Tapi salah satu penyebabnya juga, saya kadang berada pada fase _insecure_ selama kehamilan kemaren. Takut keguguran lagi seperti di kehamilan kedua. Jadi saya memilih untuk tidak membicarakan dulu sambil mengupayakan agar semua berjalan lancar.
 
 Mari mengingat-ingat lagi sembilan bulan itu. Kehamilan ini tantangannya adalah, hadirnya di kala pandemi. Hamil di kala pandemi itu tentu butuh manajemen mental yang berbeda. Di satu sisi mikir bertahan hidup dari pandemi, di sisi lain mikirin perkembangan bayi. Mau cek rutin ke klinik aja musti persiapan yang lebih dari biasanya. Tentu saja agak paranoid.
 
