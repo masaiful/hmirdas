@@ -16,7 +16,7 @@ Tapi salah satu penyebabnya juga, saya kadang berada pada fase _insecure_ selama
 
 Mari mengingat-ingat lagi sembilan bulan kemarin itu. Kehamilan ini tantangannya adalah, hadirnya di kala pandemi. Hamil di kala pandemi itu tentu butuh manajemen mental yang berbeda. Di satu sisi mikir bertahan hidup dari pandemi, di sisi lain mikirin perkembangan bayi. Mau cek rutin ke klinik aja musti persiapan yang lebih dari biasanya. Tentu saja Covid ini bikin paranoid.
 
-Tantangan selanjutnya, di beberapa bulan kehamilan saya mesti LDR sama suami. Dia musti balik dulu ke Belanda. Tapi bersyukur dia ada di awal dan di akhir masa kehamilan. Masa lagi butuh-butuhnya pegangan idup. Ahzeq.
+Tantangan selanjutnya, di beberapa bulan kehamilan saya mesti LDR lagi sama suami. Dia musti balik dulu ke Belanda. Tapi bersyukur dia ada di awal dan di akhir masa kehamilan. Masa lagi butuh-butuhnya pegangan idup. Ahzeq.
 
 Anak pertama juga masih tetap sekolah online seperti biasa dan saya tetap bekerja. Mengerjakan ini itu tanpa suami, mayan juga ya buuun. Untung anak pertama ini sudah lumayan gede juga, sudah bisa mengurus sebagian keperluannya sendiri.
 
