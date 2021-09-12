@@ -18,7 +18,7 @@ Mari mengingat-ingat lagi sembilan bulan kemarin itu. Kehamilan ini tantangannya
 
 Tantangan selanjutnya, di beberapa bulan kehamilan saya mesti LDR lagi sama suami. Dia musti balik dulu ke Belanda. Tapi bersyukur dia ada di awal dan di akhir masa kehamilan. Di masa lagi butuh-butuhnya pegangan hidup. Ahzeq.
 
-Sedang anak pertama juga masih tetap sekolah online seperti biasa dan saya tetap bekerja. Mengerjakan ini-itu tanpa suami, mayan juga ya buuun. Untung anak pertama ini sudah lumayan gede juga, sudah bisa mengurus sebagian keperluannya sendiri.
+Sedang anak pertama juga masih tetap sekolah online seperti biasa dan saya tetap bekerja. Mengerjakan ini-itu tanpa suami, mayan juga ya buuun. Untung anak pertama sudah lumayan gede, sudah bisa mengurus sebagian keperluannya sendiri.
 
 Cerita seru lainnya adalah saat persalinan. Tapi mungkin akan saya ceritakan di kesempatan lain.
 
