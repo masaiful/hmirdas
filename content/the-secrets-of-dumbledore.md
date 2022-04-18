@@ -6,7 +6,7 @@ title = "The Secrets of Dumbledore"
 +++
 Akhirnya nonton bioskop lagi, yaaaay! Sebenarnya ini adalah tontonan kedua sesudah 2 tahun pandemi. Pertama adalah Spiderman No Way Home, dan sekarang yang kedua ini, Fantastic Beasts: The Secret of Dumbledore.
 
-Sebenarnya kalau soalan tentang Wizarding World-Harry Potter, saya cendrung subjektif orangnya. Ketika ada yang bilang fimnya jelek, saya akan defensif. Padahal...ya memang tak bisa dibilang bagus, tapi juga tidak jelek-jelek amat.
+Sebenarnya kalau soalan tentang Wizarding World-Harry Potter, saya cendrung subjektif orangnya. Ketika ada yang bilang fimnya jelek, saya akan defensif. Padahal...ya memang tak bisa dibilang bagus sekali, tapi juga tidak jelek-jelek amat.
 
 ![](/img/uploads/photo_2022-04-18_09-58-12.jpg)
 
