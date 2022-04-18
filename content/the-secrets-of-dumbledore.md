@@ -30,7 +30,7 @@ Beberapa hal juga dipaksakan menurut saya. Mau diceritakan tapi takut spoiler ma
 
 Omong-omong soal Credence, saya juga kecewa soal porsi dan peran dia di film ini. Sesudah menjadi sangat horor dan terkesan akan berlanjut menjadi sosok yang powerful, di film ini ternyata jadi...yah begitu aja. Fighting pun tidak menang. Menjadi cengeng dan sangat sentimentil.
 
-Soal rumor yang selalu beredar sesudah Harry Potter antara Dumbledore dan Grindelwald jadi terjawab di film ini. Yah sesuai persepsi keleaan semua kan gaes....
+Soal rumor yang selalu beredar sesudah Harry Potter antara Dumbledore dan Grindelwald juga terjawab di film ini. Yah sesuai persepsi keleaan semua kan gaes....
 
 Oke, segitu dulu ya review "gak jelas"nya dari saya. Sebenarnya bisa dikulik satu-satu, tapi nanti malah nyeritain filmnya. Sekali lagi, saya agak subjektif memang. Mendengar opening film aja, perasaan langsung membuncah.
 
