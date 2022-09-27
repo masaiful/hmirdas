@@ -10,6 +10,6 @@ Jadilah hari H berangkat ke Gandaria City. Kebetulan udah lama gak ke mall, angg
 
 ![](/img/uploads/photo_2022-09-25_14-36-10.jpg)
 
-Alhamudillah akhirnya bisa ketemu teman-teman barang 2-3 jam. Bisa ngobrol soalan peristiwa yang lagi happening, berbagi kabar, bernostalgia dan lain sebagainya.  Ada [Mamah Wiwik](https://www.wiwikwae.com/), [Didut](http://blog.didut.net/), [Dimas](https://dimasnovriandi.blog/), [Eno](https://www.nagacentil.com/), [Ulpha](https://emyou.wordpress.com/), [Umen](https://www.hugedomains.com/domain_profile.cfm?d=umenumen.com), [Mas Goen,](http://goenrock.com/) [Ajeng](http://dlembayung.blogspot.com/), [Lindalink](https://www.lindaleenk.com/).
+Alhamduillah akhirnya bisa ketemu teman-teman barang 2-3 jam. Bisa ngobrol soalan peristiwa yang lagi happening, berbagi kabar, bernostalgia dan lain sebagainya.  Ada [Mamah Wiwik](https://www.wiwikwae.com/), [Didut](http://blog.didut.net/), [Dimas](https://dimasnovriandi.blog/), [Eno](https://www.nagacentil.com/), [Ulpha](https://emyou.wordpress.com/), [Umen](https://www.hugedomains.com/domain_profile.cfm?d=umenumen.com), [Mas Goen,](http://goenrock.com/) [Ajeng](http://dlembayung.blogspot.com/), [Lindalink](https://www.lindaleenk.com/).
 
-Terima kasih buat [Adito](http://www.adiitoo.com/) dan [Ira](https://itikkecil.com/) yang mau jadi "host". Kapan-kapan kita ulang lagi yaaa...
+Terima kasih buat [Adito](http://www.adiitoo.com/) dan [Mbak Ira](https://itikkecil.com/) yang mau jadi "host". Kapan-kapan kita ulang lagi yaaa...
